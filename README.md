@@ -1,1 +1,1 @@
-# Web_K
+# wasted_script
